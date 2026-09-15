@@ -1,0 +1,1 @@
+# THA-Cup-App-Research-v1.0
